@@ -12,5 +12,6 @@ Here are some ideas to get you started:
 -💬 Ask me about anything.
 -📫 How to reach me:stephym917@gmail.com
 -😄 Pronouns:she/her
+
 -⚡ Fun fact:I love to play video games and I have 2 bunnies and 3 dogs.
 

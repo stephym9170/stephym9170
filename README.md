@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- I’m currently working on getting my bachelors in computer science and starting my editing "business".
+- I’m currently working on getting my bachelors in computer science and start YT, streaming and perfecting my craft.
 
 -🌱 I’m currently learning how to stay focused on my journey.
 
@@ -15,9 +15,9 @@ Here are some ideas to get you started:
 
 -💬 Ask me about anything.
 
--📫 How to reach me:stephym917@gmail.com
+-📫 How to reach me: stephym917@gmail.com
 
--😄 Pronouns:she/her
+-😄 Pronouns: she/her
 
--⚡ Fun fact:I love to play video games and I have 2 bunnies and 3 dogs.
+-⚡ Fun fact:I love to play video games, make beats, watch movies, hang with friends and I currently have 2 bunnies and 3 dogs.
 

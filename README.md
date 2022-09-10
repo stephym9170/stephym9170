@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- I’m currently working on getting my bachelors in computer science and start YT, streaming and perfecting my craft.
+- I’m currently working on getting my bachelors in computer science and game design, I started playing around with more graphic design tools, I started focusing more on myself, wowrk, and school. 
 
 -🌱 I’m currently learning how to stay focused on my journey.
 

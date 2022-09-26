@@ -21,4 +21,5 @@ Here are some ideas to get you started:
 
 -⚡ Fun fact:I love to play video games, make beats, watch movies, hang with friends and I currently have 2 bunnies and 3 dogs.
 
-![this is an image](![funky-superpower-lg](https://user-images.githubusercontent.com/90430191/192174473-466fddfa-19d3-4406-b700-21978a5193b7.png)
+
+![funky-superpower-md](https://user-images.githubusercontent.com/90430191/192174560-fef8e80f-6e95-4f1e-bc87-7243dc8ff4ba.png)
